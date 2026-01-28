@@ -12,7 +12,7 @@
 
 • i'm an adult, btw. I dont mind minors interacting with me or sitting with me, but I am not interested in getting close.
 
-• i am ok with C+H, kissing, booping, etc... as long as it's kept platonic. (do NOT flirt with me... even if you only intend it to be friendly)
+• i am ok with C+H, kissing, booping, etc...(UNLESS NAME SAYS OTHERWISE) as long as it's kept platonic. (do NOT flirt with me... even if you only intend it to be friendly)
 
 • usually i am off-tab/away, so if i don't respond then send me a whisper !! 
 
